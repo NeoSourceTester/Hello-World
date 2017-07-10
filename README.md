@@ -4,3 +4,4 @@ I believe this will enhance my chance of becoming a better programmer and help d
 This page will eventually be part of many pages to create as my huge to become a better writer.
 
 Good Luck!
+Remember nothing is too hard
